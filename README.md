@@ -12,6 +12,6 @@
 Qualquer dúvida entre em contato
 <a href="mailto:XXXXXXX@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](https://media.tenor.com/_oiAhqD-HnQAAAAd/neymar-santos-neymar-jr.gif)
+![](<div class="tenor-gif-embed" data-postid="18007188" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/gta-v-gif-18007188">Gta V GIF</a>from <a href="https://tenor.com/search/gta+v-gifs">Gta V GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 
